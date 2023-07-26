@@ -1,0 +1,1 @@
+Tequila is a small town located in the western Mexican state of Jalisco. It is situated in the Tequila Valley, in the foothills of the Tequila Volcano. The town is surrounded by vast fields of blue agave, the plant used to produce tequila.
